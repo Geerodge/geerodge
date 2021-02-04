@@ -1,3 +1,3 @@
 # :wave: Hello World
 
-I'm George. I'm a software developer and I love open source web technology, decentralised applications and cryptocurrency.
+I'm George. I'm a developer and I love building and learning new things, open source web technology, decentralised applications and cryptocurrency.
