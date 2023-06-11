@@ -6,5 +6,5 @@ I love to help business owners earn more money, by helping them understand their
 
 I've been marketing and building websites for over 10 years, helping hundreds of clients grow their businesses.
 
-[Visit my website](https://georgemc.net) to find out more.
+[Visit my website](https://georgemc.co.uk) to find out more.
 
