@@ -1,4 +1,4 @@
-# Ecommerce Strategist. Digital Growth Leader. Focused on results that scale.
+# 👋 Hello World!
 
 I turn ecommerce complexity into clarity, and clicks into customers.
 
